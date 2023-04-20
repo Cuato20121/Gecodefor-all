@@ -1,1 +1,0 @@
-Fixed: Six Shooter Rubber Band Gun by SR_Engineering on Thingiverse: https://www.thingiverse.com/thing:3466902
